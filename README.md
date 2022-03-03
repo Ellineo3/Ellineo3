@@ -1,9 +1,9 @@
 - 👋 Hi, I’m  Eneo
-- 👀 I’m interested in ... People, expanded consciousness (drugs), 
+- 👀 I’m interested in ...
 - 🌱 I’m currently learning ...a lot
-- 💞️ I’m looking to collaborate on ... Getting high and getting laid
+- 💞️ I’m looking to collaborate on ..
 
-- 📫 How to reach me ...9729149988
+- 📫 How to reach me ..
 
 <!---
 Ellineo3/Ellineo3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
